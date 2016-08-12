@@ -14,7 +14,7 @@ What you will need:
 
 ### Phase 1: Reconnaissance
 
-Find a suitable container to enclose the unsuspecting wasp in. The characteristic traits of a suitable container are transparency, sturdiness, and lightness of weight.
+Find a suitable container to enclose the unsuspecting wasp. The characteristic traits of a suitable container are transparency, sturdiness, and lightness of weight.
 
 ### Phase 2: Waiting Game
 
@@ -22,11 +22,9 @@ Follow the wasp around until it lands on a flat surface. This can be a table, a 
 
 Eventually s/he will land. Don't try to force this part, let it happen naturally.
 
-### Phase 3: The Envelopment
+### Phase 3: The Capture
 
 The wasp is now taking a break from flying. Keeping your composure, approach it from behind and without any hesitation, lay down the dome.
-
-<< Doesn't the wasp have freedom of movement? It's the wasp's earth as much as it is yours, so what gives you the right to put the handcuffs on him like that? << Speech bubble
 
 The OrderUp cup was the best suitor for the job in this case. Slightly opaque, sturdy, never actually used for drinking. Thank you OrderUp.
 
